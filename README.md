@@ -35,17 +35,19 @@ A little bit of info bout myself.
 
 ...
 
-╰→ 
+◡ .
 [?] I'm currently a minor / 13 ,
 
 . so please IWC on any social/or Irl !
 
-╰→ 
+
+◠ .
   [!] I'd say i'm a pretty jolly person when you get to know me. I have alot of interests and love talkin bout them.
 
 . I enjoy making Art, Playing badminton, and other activities!
 
-╰→ 
+
+◡ .
    [?] My DM's on any social are always open, feel free to chat me!
 
 . Although if you do, you'd get late responses T>T
@@ -59,23 +61,30 @@ A little bit of info bout myself.
 =================================================
 
 
-╰→ 
+◠ .
    [!] I'm mostly active on every social from 7 am - 12 pm & 1 pm - 8 pm ( GMT+8 )
 
 . If you're curious bout my nationality , it's Filipino !
 
-╰→
+
+◡ .
   [!] I Use He/Him pronouns, though originally she/they !
 
 . Yes im transmasc (yes at such a young age ok..)
 
-╰→
+
+◠ .
 [!] I ADORE Cats, rats !
 . heh, meow.
 
-╰→
+◡ .
   [!] My current Oshi is noneother than.. : Dazai Osamu !
+
 . Bungo stray dogs Oshi & Kin (NOT YUME) 
+
+
+
+
 <img width="383" height="156" alt="image" src="https://github.com/user-attachments/assets/628496fa-76a0-42e8-84df-8f8c420d3e0f" />
 
 
@@ -85,6 +94,10 @@ Other random stuff
 
 ...
 
+
+[!?] PFP and Headers are not my art!
+
+. They all came from BEAST (manga), illustrated by Hoshikawa !!
 (nothing for now, will update occasionally)
 
 <img width="383" height="161" alt="image" src="https://github.com/user-attachments/assets/3e270546-5ba6-48e3-a7bb-1119cb2586f9" />
