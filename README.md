@@ -50,7 +50,12 @@ A little bit of info bout myself.
 
 . Although if you do, you'd get late responses T>T
 
+=================================================
 
+                 /\____/\
+               > •      • <
+                U        U
+                
 =================================================
 
 
