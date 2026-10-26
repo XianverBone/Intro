@@ -50,6 +50,10 @@ A little bit of info bout myself.
 
 . Although if you do, you'd get late responses T>T
 
+
+=================================================
+
+
 ╰→ 
 [!] I'm mostly active on every social from 7 am - 12 pm & 1 pm - 8 pm ( GMT+8 )
 
