@@ -55,11 +55,18 @@ A little bit of info bout myself.
 
 . If you're curious bout my nationality , it's Filipino !
 
-╰→ 
+╰→
 [!] I Use He/Him pronouns, though originally she/they !
 
 . Yes im transmasc (yes at such a young age ok..)
 
+╰→
+[!] I ADORE Cats, rats !
+. heh, meow.
+
+╰→
+[!] My current Oshi is noneother than.. : Dazai Osamu !
+. Bungo stray dogs Oshi & Kin (NOT YUME) 
 <img width="383" height="156" alt="image" src="https://github.com/user-attachments/assets/628496fa-76a0-42e8-84df-8f8c420d3e0f" />
 
 
@@ -75,3 +82,8 @@ Other random stuff
 
 
 ## Blank
+Extra Info
+
+...
+
+(Nothing for now, will update occasionally)
