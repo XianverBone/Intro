@@ -25,6 +25,8 @@ Xan, Alex, Xander, Ethy, Ethan, Xian, Xanxan, ETC
 
 (these all came from my amazing and gorgeous friends)
 
+***
+
 <img width="383" height="147" alt="image" src="https://github.com/user-attachments/assets/55558ac0-5456-4b32-9be1-a43283bd555a" />
 
 
@@ -83,7 +85,7 @@ A little bit of info bout myself.
 . Bungo stray dogs Oshi & Kin (NOT YUME) 
 
 
-
+***
 
 <img width="383" height="156" alt="image" src="https://github.com/user-attachments/assets/628496fa-76a0-42e8-84df-8f8c420d3e0f" />
 
@@ -102,6 +104,8 @@ Other random stuff
 
 
 (nothing for now, will update occasionally)
+
+***
 
 <img width="383" height="161" alt="image" src="https://github.com/user-attachments/assets/3e270546-5ba6-48e3-a7bb-1119cb2586f9" />
 
