@@ -38,7 +38,7 @@ A little bit of info bout myself.
 ...
 
 ◡ .
-[?] I'm currently a minor / 13 ,
+[?] I'm currently a minor ,
 
 . so please IWC on any social/or Irl !
 
