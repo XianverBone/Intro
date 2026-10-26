@@ -102,6 +102,10 @@ Other random stuff
 . They all came from BEAST (manga), illustrated by Hoshikawa !!
 
 
+[!] If i use my GH on pt as my social, it has the same purpose as me " c * h ' any [1] int " patreon!!
+
+. if i use my specific patreon that says "offtab", ill prolly not respond if you're tryna int, sorry !
+
 
 (nothing for now, will update occasionally)
 
