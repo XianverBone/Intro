@@ -1,4 +1,4 @@
-## Welcome !
+## An Introduction !
 
 <!--
 **XianverBone/XianverBone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -46,7 +46,7 @@ A little bit of info bout myself.
 ◠ .
   [!] I'd say i'm a pretty jolly person when you get to know me. I have alot of interests and love talkin bout them.
 
-. I enjoy making Art, Playing badminton, and other activities!
+. I enjoy making Art, Playing badminton, poetry, and other activities!
 
 
 ◡ .
