@@ -63,7 +63,7 @@ It is a given that everything that is worth wanting will be lost the moment I ob
 There is nothing worth pursuing at the cost of prolonging a life of suffering."
 
 
-- Osamu Dazai.
+-- Osamu Dazai.
                 
 =================================================
 
