@@ -119,9 +119,39 @@ Other random stuff
 <img width="383" height="161" alt="image" src="https://github.com/user-attachments/assets/3e270546-5ba6-48e3-a7bb-1119cb2586f9" />
 
 
-## Blank
+## Inside Pony Town
 Extra Info
 
 ...
 
-(Nothing for now, will update occasionally)
+[!] Ofcourse, you can see me in the BSD area often, most afk.
+
+. W2I when offtab
+
+. Int freely when intab
+
+. C * h Any, i don't mind
+
+. Roleplay is fine, i just dont engage in it often
+
+[?] Dont be shy to approach me even when im with my friends
+
+. aka people who go by "XiianenCire" and "Beehive Rmk"
+
+[!?] Please DNI any freaks
+
+eg :
+
+. non-sharing yume's who flame me for cosplaying their f/o
+
+. Problematic people
+
+. people looking for a fight
+
+. skin stealers
+
+. Darkshippers
+
+. Literally any problematic ppl pls dni.
+
+[!] ...
