@@ -102,9 +102,11 @@ Other random stuff
 ...
 
 
-[!?] PFP and Headers are not my art!
+[!?] Most art featured are not mine!
 
-. They all came from BEAST (manga), illustrated by Hoshikawa !!
+. i sadly cant find credits in most times other than Hoshikawa/Harukawa's official art/manga panesl.
+
+. art featured with the signature "Euri" or "Alex" (with an X.B on the bottom) is the only art i made myself
 
 
 [!] If i use my GH on pt as my social, it has the same purpose as my " c * h ' any [!] int " patreon!!
