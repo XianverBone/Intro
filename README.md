@@ -132,7 +132,9 @@ Extra Info
 
 . Int freely when intab
 
-. C * h Any, i don't mind
+. C * h Any, i don't mind! high encouraged 
+
+. c * h * k + cover comf ^^
 
 . Roleplay is fine, i just dont engage in it often
 
