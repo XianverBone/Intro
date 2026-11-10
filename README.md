@@ -89,6 +89,7 @@ There is nothing worth pursuing at the cost of prolonging a life of suffering."
 
 . Bungo stray dogs Oshi & Kin (NOT YUME) 
 
+. I LOVE RIMBAUD AND DAZAI AAAAA I LOVE THEM SO MUCHBHHAHAHA
 
 ***
 
