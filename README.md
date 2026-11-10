@@ -104,7 +104,7 @@ Other random stuff
 
 [!?] Most art featured are not mine!
 
-. i sadly cant find credits in most times other than Hoshikawa/Harukawa's official art/manga panesl.
+. i sadly cant find credits in most times other than Hoshikawa/Harukawa's(or any official bsd artist in general) official art/manga panesl.
 
 . art featured with the signature "Euri" or "Alex" (with an X.B on the bottom) is the only art i made myself
 
