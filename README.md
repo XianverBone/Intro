@@ -127,13 +127,13 @@ Extra Info
 
 ...
 
-[!] Ofcourse, you can see me in the BSD area often, most afk.
+[!] Ofcourse, you can see me in the BSD area often, mostly afk.
 
 . W2I when offtab
 
 . Int freely when intab
 
-. C * h Any, i don't mind! high encouraged 
+. C * h Any, i don't mind! highly encouraged 
 
 . c * h * k + cover comf ^^
 
